@@ -8,7 +8,7 @@ _| <a href="https://web.telegram.org/k/#@usdsmellyy">TELEGRAM</a>_
 
 ---
 
-<h2>SCAMPAGE CHIME PRIVATE PAID - GCLOUD 👾 </h2>
+<h2>SCAMPAGE PRIVATE PAID - GCLOUD 👾 </h2>
 <img src="https://i.imgur.com/mQ0r2Rt.jpeg" style="max-width:100%">
 
 ## Installation :
